@@ -3,6 +3,7 @@ Dancing as a Means to Discover Human Connections through Nature
 
 Assignment0 for Course _#6339 Introduction to Computational Design_
 Website: https://gsd6338.org/fall2022/assignment0/dancing-in-shan-shui/index.html
+Video: https://youtu.be/w7EQfWcYZvI
 
 
 With the Shan Shui painting as the background, an elegant dance track is recorded. The two dancers dance to the beat of the music, and the handles in their hands collect the dynamics of their bodies.
